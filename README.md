@@ -12,7 +12,7 @@ i have a pet cat. black with green eyes, hates everything. where have i heard th
 
 i'm going to give out a few of my DNIs..
 
-ANY PROBLEMATIC PEOPLE, IN ANY WAY OR FORM, PLEASE DNI. I'm talking people who support pedos, etc.
+ANY PROBLEMATIC PEOPLE, IN ANY WAY OR FORM, PLEASE DNI. I'm talking people who support pedos irl, etc. fictional proships, comships and darkships are fine as long as you don't describe it in a sexual manner to me.
 
 PLEASE DNI IF YOU BRING UP ANY ADULT TOPICS TOO. I'M STILL A MINOR, HAHA..
 
